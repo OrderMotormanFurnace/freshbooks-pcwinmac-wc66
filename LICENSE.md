@@ -1,4 +1,4 @@
-# 
+# Open Source FreshBooks plugins pour Mac OS | Meilleur FreshBooks plugins pour PC Windows. Avec catégorisation des dépenses et biffage — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
